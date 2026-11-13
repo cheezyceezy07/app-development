@@ -1,1 +1,1 @@
-My first repository
+My favorite movie is Ne Zha 2 by Yu Yang because it teaches us that our destiny is not defined by how others see us, but by the choices we make. I love how it showcases courage, determination, and the importance of never giving up despite the challenges we face.
